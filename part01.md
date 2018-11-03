@@ -61,7 +61,7 @@ take away from 表示“从……拿走”的意思，另外两种含义：1）�
 get over it!	行了
 
 
-# https://mp.weixin.qq.com/s/kkMk8FBPWN6kt0hguUJDIw
+## 老友记 第38讲
 
 Everyone winds up having the same stuff.	每个人买的款式都一样。
 wind up在这里意为“以……告终，最后的结果是……”，它与end up同义，但用法稍有区别，wind up表示的“结束”更加主动。另外，wind sb. up是“故意惹恼，哄骗”的意思。
@@ -77,3 +77,5 @@ hide from表示“隐瞒，使……看不见”，hide sth.from sb.就是“把
 
 She just likes her stuff to be one of a kind.	她不是奇怪，她就是想让她的东西独一无二罢了。
 one of a kind可以翻译为“独一无二”。kind这个词有很多解释，在这里，它的意思是“一个类别”。任何人要是成为one of a kind，也就是说他是“只此一家，独一无二”的，那当然就很特殊，具有自己明显的特征，没有人能和他相提并论。
+
+reference https://mp.weixin.qq.com/s/kkMk8FBPWN6kt0hguUJDIw
