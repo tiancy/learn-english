@@ -62,6 +62,71 @@ You can’t take him away from me! 	你不能从我这儿抢走他！
 take away from 表示“从……拿走”的意思，另外两种含义：1）表示“贬低”；2）表示“减损”
 
 get over it!	行了
+
+That goes without saying. 肯定的，这还用说嘛（很明显,不用说
+
+get off the phone 放下手机
+
+Wow, what a beautiful dress! 哇，好漂亮的礼服啊!
+
+free up some memory 释放一些空间
+
+I was really bummed out about it 挺不爽的
+
+Oh, that must have been disappointing. 哦，那一定特别让你失望了。
+
+Am I missing something? 我是错过了什么吗？
+
+had my heart set on (sth)  特别渴望，看好   
+wanted (sth) dearly
+
+You got way too much free time. 你可真闲啊。  
+way too 太怎么样，有点过头
+
+check it out 看一看
+
+Here’s the birthday boy!  这不是我们的寿星吗？
+
+比如，有人说“Henry，我没有请你去我的演唱会，因为我知道你没时间
+。”“哎，没有呀，我还挺愿意的呀。
+”“哎，没有呀，我有时间呀，如果你当时跟我说，我肯定去。”
+中文会铺垫，会说个条件“如果你当时跟我说……”
+而英文，可以直接用一种结构来表达，直接表达“我愿意去。”
+都不用表达前面的条件，已经把条件包含在内了。
+“I could have gone.”得了。
+【条件就别说，这句已经包含了。】
+“哎呀，我怕音乐会太吵了，你不愿意去。”“
+我愿意呀，只要你当时给我说的话。”
+直接表达“I would have gone.”
+“他当时邀请我去，我没去，现在我后悔了，当时真应该去的！
+”那“当时应该去”这事儿没有发生，我现在是后悔的一个状态，
+直接表达“I should have gone.”
+虚拟语气的功能是在聊“当时”“以前”“应该做，愿不愿意做，有没有能力做…
+”这就是“should have”“would have”“could have”的区别。
+虚拟，也不一定是过去，比如“I think his butt would 
+
+See, I told you! 看吧，我说得没错吧！
+
+have you heard anything from your friend? 最近有你那位朋友的消息吗？  
+heard from 有某人的消息
+
+Do tell! 赶紧说说
+
+It was a plan.  那是有预谋的
+
+Are you into comic books? 你喜欢看漫画吗?  
+into something 喜欢什么
+
+Not really.  并没有
+
+So what? 那又怎样
+
+Later years  晚年
+
+Try me.  尽管问
+
+he came up with lots of superheroes, like Spider Man and the Fantastic Four. 他创造了很多超级英雄，比如蜘蛛侠和神奇四侠。  
+come up 想出
 ```
 
 ## 老友记 第38讲
