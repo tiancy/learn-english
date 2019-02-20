@@ -127,6 +127,82 @@ Try me.  尽管问
 
 he came up with lots of superheroes, like Spider Man and the Fantastic Four. 他创造了很多超级英雄，比如蜘蛛侠和神奇四侠。  
 come up 想出
+
+be five hundred miles away from home 已经走了离家五百里
+I’m away from home.  远离家乡
+Be away from 远离
+
+In such a case.  在这种情况下
+
+They had a buy-one-get-one-free special. 他们正好有买一送一的特惠活动。
+
+I was drunk on you.  我是爱你爱得如痴如醉！
+
+If it was, would you stop hanging out with her? 如果是，你愿意就此不再和她来往吗？
+Hanging out with… 和谁呆在一块
+
+Take it easy.  放轻松（安慰人
+
+what's the latest about something？什么最近怎么样
+
+Let me grab some hot chocolate. 让我先去买一杯热巧克力。
+grab 买什么东西
+
+Could you speak up please?
+[kʊ dʒµ sbi kʌ’ pliz?] 可以大声点吗？
+
+too easy for you 对你来说太简单了
+
+I thought you were the most beautiful woman that I’d ever seen in my—in my life. 
+[ɑi θɑ’ jµ wər ðə mous’ bjµ dɪ fəl wʊ ɪnɪn ðæ dɑi de vər si nɪn mɑi lɑif]
+我觉得你是我，我这一生中见过的最漂亮的女孩。
+
+I liked her in Splash, a lot, but not so much in—in Wall Street.
+[ɑi lɑi’ dər rɪn splæ ʃə lɑ’ bʌ’ nɑ’ tsou mʌ tʃɪn wɑl sdri’]
+我喜欢《美人鱼》中的她，但《华尔街》里的就没那么喜欢了. 
+Not so much 没那么…
+
+I don’t know what that means.  我不知道那是什么意思
+
+I can’t believe we are even having this discussion.
+[ ɑi kæ nɑ’ bɪ li vwiər i vən hæ viŋ ðɪs dɪs gʌ ʃɪn ]
+真无法相信我们竟在讨论此事。
+
+I can’t believe … even 真无法相信 even 既然，连（表示加强
+
+I’m, like, in disbelief
+[ɑim lɑi’ ɪn dɪs bɪ lif ] 我也有些无法相信。
+
+does he look upset？他看上去很落寞
+upset 难过 失落 任何心情不好的
+
+How’d it go?  情况如何？聊的如何？
+
+don’t everybody look at once!
+[doun’ e vri bɑ di lʊ kə’ wʌnᵗs] 别一起看。
+
+what’s going on?  怎么了？
+
+I am over this.  我已经对这个不感兴趣了
+over something 放下什么东西
+
+I can play with my phone until you're finished up.  等你完事时，我可以玩玩手机。
+play with something 玩什么东西
+finish up 完全完成
+
+I’ll come get you in 5 minutes
+[ɑil kəm ge’ jµ (w)ɪn fɑiv mɪ nɪts] 5分钟后我来叫你
+
+You two are totally into each other.
+[jµ tµ (w)ɑər tou dəl li jɪn tµ (w)i tʃʌ ðər] 你们两个完全互相着迷。
+totally 完全
+into something 喜欢
+
+the day before yesterday 前天
+The day after tomorrow 后天
+
+bingo 答对了
+
 ```
 
 ## 老友记 第38讲
