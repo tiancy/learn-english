@@ -214,11 +214,32 @@ set someone up 给某人安排
 
 What a sweet person! 真是好人啊！
 
+What a wonderful afternoon 多么美好的下午
+
 Sleep in 睡懒觉
 
 Get together 团聚，聚在一起
 
 Out of this world / amazing 了不起的，世界一流水平的
+
+anyway 无论如何，任何，总之
+
+I will 我会的
+
+No way 没门，绝对不行
+
+The spring Festival is coming up 春节快到了
+is coming up 到来了，近了
+
+surprise me 帮我选一个
+
+I booked last fall 我去年秋天计划
+
+That fell through 落空
+
+I forgot 我忘了
+
+Sorry to hear that 别人有不幸之事后说的一句安慰话
 
 ```
 
