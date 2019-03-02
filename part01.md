@@ -203,6 +203,23 @@ The day after tomorrow 后天
 
 bingo 答对了
 
+red envelope 红包
+
+I totally understand. 我完全理解。
+
+I didn’t enjoy it much, but I had no choice! 我真心不喜欢，但有什么办法呢？
+Have no choice 无奈；不得不
+
+set someone up 给某人安排
+
+What a sweet person! 真是好人啊！
+
+Sleep in 睡懒觉
+
+Get together 团聚，聚在一起
+
+Out of this world / amazing 了不起的，世界一流水平的
+
 ```
 
 ## 老友记 第38讲
