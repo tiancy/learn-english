@@ -241,6 +241,43 @@ I forgot 我忘了
 
 Sorry to hear that 别人有不幸之事后说的一句安慰话
 
+I'll be looking forward to that sbt 
+be looking forward 期待
+
+win-win 两面都好
+
+So, he's just a nice guy. 他只是一个好人而已
+
+You really think this Mark doesn't want anything in exchange for helping you? 你真的以为Mark 不求回报的帮你吗？
+doesn't want anything in exchange 不求回报
+
+That's true of any job 所有的工作都一样
+
+Well? 发生了什么？提醒别人说
+
+I was going for "wrong" 我本意是。。
+
+pulled a sb 像谁的
+
+And the next time you cater for me 下次 为某人提供食物
+
+That really means a lot 这个意义对我是很重要的。表示感谢时
+
+Are you all set to go on your trip 
+all set 准备好
+go on your trip 旅行
+
+That isn't until next week 那不是下周嘛
+
+We have a couple days off 两天假/小长假
+
+in a now 一系列
+
+even though 即使
+
+It's hard to believe. 难以相信
+
+I thought is was quite tasty. 我想应该是很好吃吧
 ```
 
 ## 老友记 第38讲
