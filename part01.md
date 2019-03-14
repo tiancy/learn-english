@@ -1,6 +1,8 @@
 # part 1
 
 ```
+but I don't know how. 我不知道如何玩/办
+
 It's cute. 可爱
 It's fun. 有趣
 
