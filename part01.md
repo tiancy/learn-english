@@ -1,6 +1,9 @@
 # part 1
 
 ```
+It's cute. 可爱
+It's fun. 有趣
+
 Can't we go a little early today?
 a little early 提前一点
 
