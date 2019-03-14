@@ -1,6 +1,11 @@
 # part 1
 
 ```
+Can't we go a little early today?
+a little early 提前一点
+
+but not right now 但不是现在
+
 more and more	越来越多
 
 So, for the solution of above problem	那么，对于上述问题的解决方案
