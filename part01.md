@@ -2,6 +2,9 @@
 
 ```
 but I don't know how. 我不知道如何玩/办
+I know that. 我知道了
+
+It's a lot of fun. 其乐无穷
 
 It's cute. 可爱
 It's fun. 有趣
