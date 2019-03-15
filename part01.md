@@ -1,6 +1,13 @@
 # part 1
 
 ```
+What do I do? 我该怎么办？
+
+I got it. 明白了
+
+Can I come with you? 我可以和你一起去吗？
+Sure, you can. 当然，可以
+
 but I don't know how. 我不知道如何玩/办
 I know that. 我知道了
 
