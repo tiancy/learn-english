@@ -1,6 +1,14 @@
 # part 1
 
 ```
+And you had no idea they weren’t getting along?
+[ə njµ hæ’ nou wɑi di jə ðei wərn’ ge diŋ ŋə lɑŋ?] 你完全不知道他们相处得好不好？
+have no idea 不知道
+get along 在一起
+
+she wants to be more like you.
+[ʃi wɑnts tə bi mɔr lɑi kjµ] 她想向你学习。
+
 What do I do? 我该怎么办？
 
 I got it. 明白了
