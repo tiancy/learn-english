@@ -306,6 +306,13 @@ even though 即使
 It's hard to believe. 难以相信
 
 I thought is was quite tasty. 我想应该是很好吃吧
+
+No offence 恕我冒犯
+take offence at something 被…冒犯
+Please forgive me if I’ve offended you. 如有冒犯，请原谅。
+
+violate someone’s privacy 侵犯一个人的隐私
+Stop eavesdropping on our conversation! You’re violating our privacy.  别偷听我们讲话了！这属于侵犯我们的隐私。
 ```
 
 ## 老友记 第38讲
