@@ -1,6 +1,9 @@
 # part 1
 
 ```
+The only people that have power over our lives are ourselves. 唯一能掌控我们生活的人就是我们自己。
+have power over someone 一个人对他人的 “影响力、操控力”
+
 And you had no idea they weren’t getting along?
 [ə njµ hæ’ nou wɑi di jə ðei wərn’ ge diŋ ŋə lɑŋ?] 你完全不知道他们相处得好不好？
 have no idea 不知道
