@@ -1,6 +1,16 @@
 # part 1
 
 ```
+Get dressed, please. 口语 快点穿好衣服
+dress up 穿正装
+dress to impress 好好地打扮、穿衣服
+slips info 快速穿上衣服
+put on 穿衣服
+throw something on 快速穿上衣服
+
+What should I wear? 我穿什么好呢？
+wear “穿…” 的状态
+
 The only people that have power over our lives are ourselves. 唯一能掌控我们生活的人就是我们自己。
 have power over someone 一个人对他人的 “影响力、操控力”
 
