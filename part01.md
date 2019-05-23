@@ -1,6 +1,13 @@
 # part 1
 
 ```
+You look chipper. Anything new? 你看起来精神很抖擞呀，最近有何好事?
+Not exactly. Work's been the same. 没什么特别的，工作还是老样子。
+
+That's been the highlight of my week. 这是我这周最开心的事情
+
+It's a snap. 很方便
+
 Get dressed, please. 口语 快点穿好衣服
 dress up 穿正装
 dress to impress 好好地打扮、穿衣服
